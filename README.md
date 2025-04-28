@@ -48,4 +48,3 @@ I'm always open to discussing new projects, tech, and opportunities. Feel free t
 - **Phone:** [+20 10 9727 2932](tel:+201097272932)
 - **LinkedIn:** [Ahmed Hamam](https://www.linkedin.com/in/ahmed--hamam/)
 - **GitHub:** [AhmedHamamm](https://github.com/AhmedHamamm)
-- **Twitter:** [@ahmed\_\_hamam](https://twitter.com/ahmed__hamam)
